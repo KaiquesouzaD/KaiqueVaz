@@ -12,4 +12,3 @@ Meu nome é Kaique Vaz De Souza
 
 kaiquevazmt@gmail.com
 
-https://giphy.com/gifs/20thcenturyfox-night-at-the-museum-natm-movie-ylyUQlf4VUVF9odXKU
